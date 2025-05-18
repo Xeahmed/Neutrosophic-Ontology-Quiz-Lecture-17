@@ -1,0 +1,1 @@
+# Neutrosophic-Ontology-Quiz-Lecture-17
